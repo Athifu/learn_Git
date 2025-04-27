@@ -1,0 +1,1 @@
+#the project contaning about the shope near me and that concuded by the presenting about it
